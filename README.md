@@ -1,6 +1,7 @@
 # 阿里巴巴天猫营销平台招聘开始啦
 
-只需要姓名，电话和邮箱就可以报名啦！有意向直接联系我-陈凯恒，电话：13146621984(钉钉、微信绑定)，微信：Jean1254652151，邮箱：kaiheng.ckh@alibaba-inc.com
+只需要姓名，电话和邮箱就可以报名啦！有意向直接联系我-陈凯恒
+***电话：13146621984(钉钉、微信绑定)，微信：Jean1254652151，邮箱：kaiheng.ckh@alibaba-inc.com***
 
 ![天猫营销平台](https://github.com/lyflipped/tmall-2020-recommend/blob/master/%E7%B4%A0%E6%9D%90/%E8%90%A5%E9%94%80%E5%B9%B3%E5%8F%B0-min.jpg?raw=true)
 
